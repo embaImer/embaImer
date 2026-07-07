@@ -7,7 +7,7 @@ character exploration of mental health, general macabre topics
 <br>
 <br>
 <br>
+<br>
 <p align="center">
 <img width="400" height="325" src="https://files.catbox.moe/rw9igz.jpg"/>
 </p>
-<br>
