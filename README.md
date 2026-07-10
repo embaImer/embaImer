@@ -1,5 +1,5 @@
 <p align="center">
-<img src="https://64.media.tumblr.com/443e3be2af65c34be2aeb66d89271a87/7201284bd0227686-94/s100x200/e63aa19b287098ab27bdf24872e036e3a8a256f1.gifv"/><br>
+<img src="https://64.media.tumblr.com/7a40696f2ba56cc23247eb68e53b6627/fbb0ab3ecee45482-7c/s75x75_c1/9e122e603664f4fbcbe58aaf0538df53c679f0ce.gifv"/><br>
 <sub> INTERESTS　╱　IDV, angelology, victorian floriography,<br>
 thanatology, written gore and horror, manor au/stageplay,<br>
 character exploration of mental health, general macabre topics
