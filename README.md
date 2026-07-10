@@ -1,8 +1,9 @@
 <p align="center">
 <img src="https://64.media.tumblr.com/7a40696f2ba56cc23247eb68e53b6627/fbb0ab3ecee45482-7c/s75x75_c1/9e122e603664f4fbcbe58aaf0538df53c679f0ce.gifv"/><br>
 <sub> INTERESTS　╱　IDV, angelology, victorian floriography,<br>
-thanatology, written gore and horror, manor au/stageplay,<br>
-character exploration of mental health, general macabre topics
+thanatology, written gore and psychological horror, violin,<br>
+sewing, exploration of mental health through literature,<br>
+eternal manor au/stageplay, general macabre topics<br>
 </p>
 <br>
 <p align="center">
