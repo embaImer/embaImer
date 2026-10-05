@@ -1,4 +1,4 @@
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31vv3xhk44mrficbnmyfpnor37de&cover_image=true&theme=spotify-embed&show_offline=true&background_color=000000&interchange=true&profanity=false&hide_remaster=false&bar_color=000000&bar_color_cover=false&mode=dark)](https://github.com/kittinan/spotify-github-profile)
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31vv3xhk44mrficbnmyfpnor37de&cover_image=true&theme=spotify-embed&show_offline=true&background_color=000000&interchange=false&profanity=false&hide_remaster=false&bar_color=000000&bar_color_cover=false&mode=dark)](https://github.com/kittinan/spotify-github-profile)
 
 <img width="200" height="200" alt="ssstik io_1784875212901" src="https://github.com/user-attachments/assets/1f3c97de-755e-4e39-81a0-2a9541b6a8d5" />
 <img width="400" height="200" alt="AlexanderIIFront" src="https://github.com/user-attachments/assets/cc14171e-81df-4008-bbb4-2898bff526b8" /> <br>
