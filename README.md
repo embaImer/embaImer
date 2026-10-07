@@ -1,3 +1,7 @@
+<img width="400" height="200" alt="Screenshot 2026-10-06 230750" src="https://github.com/user-attachments/assets/efa7923e-54cc-409a-a96d-558a2bded03c" /> <br>
+can someone lmk who this crackhead is
+</P>
+
 <img width="400" height="200" alt="2026_10_04_0tl_Kleki" src="https://github.com/user-attachments/assets/f74d3782-3221-47c4-a5a5-597f4888ebc4" />
 <img width="200" height="200" alt="2026_04_09_0tj_Kleki" src="https://github.com/user-attachments/assets/a3b91a90-b4b0-4974-ae97-2b25710ef7ac" /> <br>
 <img width="200" height="200" alt="HJx194ya4AEeOvJ" src="https://github.com/user-attachments/assets/c429fed8-6179-4a53-a6cf-b93bf7891299" /> 
